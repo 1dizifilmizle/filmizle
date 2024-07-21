@@ -1,4 +1,4 @@
-Tetikte Filmi: Gerilim Dolu Bir Macera
+Tetikte Filmi: Gerilim Dolu Bir Macera 
 
 Filmi Buradan izleyebilirsiniz => https://1dizifilmizle.com/film/trigger-warning-izle
 
